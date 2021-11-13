@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @uvparmar33
+- 👀 I’m interested in Developing my own blockchain.
+- 🌱 I’m currently learning Blockchain and technology from cornell university
+- 💞️ I’m looking to collaborate on any kind of opportunity in this industry. 
+- 📫 How to reach me - ashwin.mali54@gmail.com
+- A Champ who is hungry for opportunities. 
